@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # 👩🏻‍💻 Diogo Gavazzi
 
 **`Estudante de Programação de Sistemas de Informação`**
