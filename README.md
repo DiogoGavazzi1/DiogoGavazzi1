@@ -3,7 +3,7 @@
 **`Estudante de Programação de Sistemas de Informação`**
 
 Olá, o meu nome é Diogo Gavazzi, tenho 22 anos e sou natural de Minde. <br>
-Sou  Estudante de Programação de Sistemas de Informação, e tenho um curso profissioanl técnico de Gestão de Equipamentos Informático.Sou apaixonadao por tecnologia e partilho um pouco da minha evolução através das mn«inhas redes sociais maioritariamente no Tiktok "[Diogo Gavazz](https://www.tiktok.com/@diogogavazzi_/video/7468321879049129238)", onde tento criar conteudo relaxante e que ajude pessoas que estejam desmotivadas na área a continuar os seus estudos.
+Sou  Estudante de Programação de Sistemas de Informação, e tenho um curso profissioanl técnico de Gestão de Equipamentos Informático.Sou apaixonadao por tecnologia e partilho um pouco da minha evolução através das mn«inhas redes sociais maioritariamente no Tiktok "[Diogo Gavazz](https://www.tiktok.com/@diogogavazzi_/video/7468321879049129238)", onde tento criar conteudo "aesthetic" e que ajude pessoas que estejam desmotivadas na área a continuar os seus estudos.
 Partilho por vezes projetos que estou a trabalhar no meu perfil do Instagram"[@DiogoGavazzi_](https://www.instagram.com/diogogavazzi_/?igsh=MTdxYTBhMjZ3a251bg%3D%3D#)".
 
 <p align="left">
